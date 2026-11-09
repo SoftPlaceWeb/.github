@@ -1,8 +1,10 @@
-![SoftPlace Web](https://www.softplaceweb.com/wp-content/uploads/2016/11/logo-softplaceweb-bianco_400px.png)
+![YUNIKON](https://www.yunikon.it/wp-content/uploads/2022/01/logo-yunikon-color-contorno-500.png)
 
-SOFTPLACE WEB S.R.L. a socio unico<br>
-Via De Mosso, 20 13900, Biella (BI)<br>
-Tel: 015 2472421<br>
-C.F. / P.IVA 02630990022<br>
-Capitale Sociale 30.000 € i.v.<br>
-Iscr. Cam.Com. Biella - REA BI-200982<br>
+YUNIKON S.R.L.<br>
+Sede legale: Via Monte Napoleone 8, 20121 Milano (MI)<br>
+Sede operativa: Via Pietro De Mosso 20/C, 13900 Biella (BI)<br>
+Tel: 015 2472421 · info@yunikon.it<br>
+C.F. / P.IVA 12114970960 iv<br>
+Capitale Sociale 10.000 €<br>
+Iscr. Cam.Com. Milano Monza Brianza Lodi - REA MI-2641512<br>
+PEC: yunikon@pec.it
